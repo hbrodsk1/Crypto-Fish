@@ -1,1 +1,1 @@
-# EthLotto
+Crypto Fish
